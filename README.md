@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @yavin16it
+- 👀 I’m interested in recruiting Engineers
+- 🌱 I’m currently searching new talents
+- 💞️ I’m looking to collaborate with you !
+- 📫 How to reach me : yavin@le16it.com or 06 99 50 53 92
